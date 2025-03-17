@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **Machine Learning , Android , Web Dev**
 
-- 📫 How to reach me **rashid23047@iiitd.ac.in**
+- 📫 How to reach me **morashidrajput89826@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
